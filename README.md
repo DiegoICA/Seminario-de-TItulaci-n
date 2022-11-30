@@ -1,1 +1,1 @@
-# Seminario-de-TItulaci-n
+# Seminario-de-Titulación
